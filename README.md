@@ -7,6 +7,8 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/priyanshurishi](https://github.com/priyanshurishi)
 
+- 📝 I resume link is [https://drive.google.com/file/d/1auv_jHcH1NzfBdtFDbTC7wld4-pidLuv/view?usp=sharing](https://drive.google.com/file/d/1auv_jHcH1NzfBdtFDbTC7wld4-pidLuv/view?usp=sharing)
+
 - 📫 How to reach me **priyanshurishi912@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/priyanshu-rishi/](https://www.linkedin.com/in/priyanshu-rishi/)
